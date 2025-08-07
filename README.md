@@ -5,7 +5,7 @@ Shourya karan singh, Branch- IT
 ---
 
 #Day 1
-#30/12/2006
+
 8.30 am to 9.30 am
 The day began with path and kirtan at college Gurudwara Sahib, blessing the new beginnings of our future tech leaders.
 
