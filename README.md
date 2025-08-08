@@ -101,7 +101,15 @@ Afternoon includes subject-specific lectures such as  English, alongside P2P ses
 
 3.00 pm to  4 pm - Mrs. Shaffy Makkar delivered an expert talk on nutrition, focusing on millets as a sustainable and nutritious food option.Mrs. Makkar spoke about different types of millets, their nutritional content, and their role in tackling lifestyle disease,At she also shared a recipe to make millets more delicious and full of nutrients 
 
+#Day 6
+9.30 am to 10.00 am - Dr. Parminder Singh commenced the day’s lecture sessions with an insightful talk about development of engineering students. He emphasized the importance of maintaining a balanced academic and personal life, the value of discipline, and the role of co-curricular activities in shaping a successful engineering career. His experience and guidance motivated students to take full advantage of the opportunities provide.
+10.00 am to 11.00 am -Mr. Manpreet Singh delivered an engaging session on physical and mental fitness tailored for engineering students,covered aspects such as posture correction, basic exercises, mental well-being, and stress management techniques . Everyone loved his sessions. 
 
+11.00 am to 12.30 pm - Brigadier P.S. Cheema concluded the session with a powerful and inspiring address. Drawing from his military background, he spoke on leadership, discipline, resilience, and patriotism. His lecture was filled with real-life anecdotes that left a strong impression on the audience. Students gained valuable insights.
+
+1.30 pm to 2.30 pm - Physics lecture by Prof. Jaspreet Singh in which he introduced us to  physics syllabus, he give a valuable lesson to students and suggested few tips to maintain ourselves in campus 
+
+2.30 pm to 3.30 - P2P lecture which was taken by seniors they taught us the basic rules and they shared their experience with all the students 
 
 
 
