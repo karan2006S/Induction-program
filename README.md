@@ -83,3 +83,17 @@ We had a group discussion where students talked about their test results in Math
 
 #DAY 4
 
+
+8.30 am to 9.30 am - The day begins with general sessions and lectures in the auditorium by Causmic club
+9.30 am to 10.30 am - lecture by Dr. Randhir Singh on "conduct of Examinations" 
+
+10.30 am to 12.30 pm - Expert Lecture
+Dr. Priya Darshani Madam (UHV-2) in which she inspired us to understand the root cause of your concerns  problems and resolve them and not to escape or run away from problems.
+
+Afternoon includes subject-specific lectures such as  English, alongside P2P sessions in which introduction was taken and both lectures help us to understand our college life .
+
+
+
+
+
+
