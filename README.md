@@ -91,7 +91,17 @@ We had a group discussion where students talked about their test results in Math
 10.30 am to 12.30 pm - Expert Lecture
 Dr. Priya Darshani Madam (UHV-2) in which she inspired us to understand the root cause of your concerns  problems and resolve them and not to escape or run away from problems.
 
-Afternoon includes subject-specific lectures such as  English, alongside P2P sessions in which introduction was taken and both lectures help us to understand our college life .
+Afternoon includes subject-specific lectures such as  English, alongside P2P sessions in which introduction was taken and both lectures help us to understand our college life.
+
+#Day 5
+
+1.30 pm to 2.30 pm -Mr. Gautam Murria, a faculty member from the Mechanical Engineering department (D4-ME), shared his expertise and passion for motor sports. We gained motivation to explore careers in automotive design and racing technologies.
+
+2.30 pm to 3 pm - Dr. Amit Kamra, the in-charge of the Digital Marketing Club, delivered a concise but informative lecture on digital marketing .Dr. Kamra highlighted the growing importance of digital skills in all industries, even in engineering.
+
+3.00 pm to  4 pm - Mrs. Shaffy Makkar delivered an expert talk on nutrition, focusing on millets as a sustainable and nutritious food option.Mrs. Makkar spoke about different types of millets, their nutritional content, and their role in tackling lifestyle disease,At she also shared a recipe to make millets more delicious and full of nutrients 
+
+
 
 
 
