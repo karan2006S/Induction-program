@@ -85,6 +85,7 @@ We had a group discussion where students talked about their test results in Math
 
 
 8.30 am to 9.30 am - The day begins with general sessions and lectures in the auditorium by Causmic club
+
 9.30 am to 10.30 am - lecture by Dr. Randhir Singh on "conduct of Examinations" 
 
 10.30 am to 12.30 pm - Expert Lecture
