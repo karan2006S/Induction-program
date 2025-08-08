@@ -109,10 +109,13 @@ Afternoon includes subject-specific lectures such as  English, alongside P2P ses
 
 11.00 am to 12.30 pm - Brigadier P.S. Cheema concluded the session with a powerful and inspiring address. Drawing from his military background, he spoke on leadership, discipline, resilience, and patriotism. His lecture was filled with real-life anecdotes that left a strong impression on the audience. Students gained valuable insights.
 
-1.30 pm to 2.30 pm - Physics lecture by Prof. Jaspreet Singh in which he introduced us to  physics syllabus, he give a valuable lesson to students and suggested few tips to maintain ourselves in campus 
+1.30 pm to 2.30 pm - Physics lecture by Prof. Jaspreet Singh in which he introduced us to  physics syllabus, he give a valuable lesson to students and suggested few tips to maintain ourselves in campus.
 
-2.30 pm to 3.30 - P2P lecture which was taken by seniors they taught us the basic rules and they shared their experience with all the students 
+2.30 pm to 3.30 - P2P lecture which was taken by seniors they taught us the basic rules and they shared their experience with all the students. 
 
+#Day 7
+
+10.00 am to 12.00 pm -Introduction to workshops, the incharge of workshop provided all the students inform about the various tools and machinery,he guided us about the safety precautions and uniform needed to wear in workshop 
 
 
 
